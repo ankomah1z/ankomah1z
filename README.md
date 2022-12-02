@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ankomah1z
-- 👀 I’m interested in ..programming's 
+- 👀 I’m interested in ..programming 
 - 🌱 I’m currently learning ...C
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...on WhatsApp 0206805313
